@@ -1,5 +1,4 @@
 # meow
-★HAIII POOKIE welcome:3 
 https://github.com/devestocaller/meow/blob/meow/Fire%20Spirit%20Cookie%20(1).jpg
 you can call me mobin btw and if you want there is something about me^w^
 I'm 18 btw~ I'm so friendly but not talkative so much but u can be my friend ofc^_^★
