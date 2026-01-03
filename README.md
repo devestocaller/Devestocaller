@@ -2,7 +2,8 @@
 ![My Image](https://raw.githubusercontent.com/daddyiscominghome/daddyiscominghome/main/b629addc2d57a4e52864f93b55f534c4.jpg)
 i love my husband so much ok? btw im aroace
 # always pony town and roblox pls just c+h and maybe im afk but w2i always so pls don't be shy :3
-# be careful and take care of yourself ^_^
+# OH before int with me read this pls !
+I'm not rude person so pls don't be rude and the only language I know is English and Arabic,when I'm afk don't be shy just int with me or whisper to me^_^ you will see me in evry pony but the github address is still don't worry!I can be your friend ofc but when I talk to you completely so I can be sure! but just pls I can't talk to boys for my own reasons just girls ok?
 ![My Image](https://raw.githubusercontent.com/daddyiscominghome/daddyiscominghome/main/3124606397fe208c874be9b11c797ed9.jpg)
 # LOVE U ALL
 # bouns >:)
